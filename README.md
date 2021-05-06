@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @akaakselabhijeet
+- 👀 I’m interested in technology
+- 🌱 I’m currently learning technology
+- 💞️ I’m looking to collaborate on technology
